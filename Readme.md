@@ -1,7 +1,7 @@
 #Hi there!
-#*Welcome to this repostiory! ﾟ∀ﾟ)σ*
+#*Welcome to this repostiory! ﾟ ∀ ﾟ)σ*
 This is a repository in which I put some self introduction. 
-It must be fate that you could have a look at this to get known about me. Thank you for your clicking (σﾟ∀ﾟ)σ.
+It must be fate that you could have a look at this to get known about me. Thank you for your clicking (σﾟ ∀ ﾟ)σ.
 ##1.Some...Gossip?
 Like most students in China, I finished my high school study after college entrance examination.
 I used to be PAINFUL about EVERY exam I had taken.~~FUCK U MATHEMATICS (｡◕∀◕｡)~~ But, after finishing my last subject, a huge emptiness overwhelmed my mind. Sometimes I feel quite nostalgic for that time.
